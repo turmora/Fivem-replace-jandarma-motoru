@@ -1,1 +1,1 @@
-Gerçekçi fivem replacejandarma motoru
+Gerçekçi fivem replace jandarma motoru
